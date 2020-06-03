@@ -111,3 +111,5 @@ Black Skin, White Masks. - Frantz Fanon.
 [Black Lives Matter Reading List](https://shop.octopusbooks.ca/?q=h.tviewer&e_def_id=fQwnDU80-A4)
 
 [Black Lives Matter - Left Bank Reading List](https://www.left-bank.com/sites/left-bank.com/files/Black%20Lives%20Matter%20Reading%20List_0.pdf)
+
+[Collection of Black Revolutionary Literature](https://drive.google.com/drive/u/0/folders/18y0_2wm85L113fVWYdgljq9uuIlmlbl3 https://pbs.twimg.com/media/EZb0_OYXgAkz1IE.jpg)
