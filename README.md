@@ -44,6 +44,8 @@ Black Skin, White Masks. - Frantz Fanon.
 
 [Policing Black Lives: State Violence in Canada](https://www.amazon.com/Policing-Black-Lives-Violence-Slavery/dp/1552669793), Robyn Maynard 
 
+[The End of Policing](https://www.npr.org/books/titles/868390203/the-end-of-policing), Alex S. Vitale
+
 ### Personal Accounts
 
 [Assata Shakur, An Autobiography](https://libcom.org/files/assataauto.pdf)
