@@ -46,6 +46,14 @@ Black Skin, White Masks. - Frantz Fanon.
 
 [The End of Policing](https://www.npr.org/books/titles/868390203/the-end-of-policing), Alex S. Vitale
 
+### On Reparations 
+
+[The Debt: What America Owes to Blacks](http://randallrobinson.com/debt.html), Randall Robinson
+
+[Belinda's Petition](https://www.amazon.com/Belindas-Petition-Concise-Reparations-TransAtlantic/dp/1441514430), Raymond Winbush
+
+[My Face is Black is True: Callie House and the Struggle for Ex-Slave Reparations](https://www.publishersweekly.com/978-1-4000-4003-2)
+
 ### Personal Accounts
 
 [Assata Shakur, An Autobiography](https://libcom.org/files/assataauto.pdf)
