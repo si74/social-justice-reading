@@ -88,6 +88,10 @@ Black Skin, White Masks. - Frantz Fanon.
 
 [Y'all Better Quiet Down](https://www.youtube.com/watch?v=Jb-JIOWUw1o&feature=youtu.be), Sylvia Riviera
 
+[Black Panther Mixtapes, Angela Davis](https://www.youtube.com/watch?v=R2BIZy0HScM)
+
+[I Have a Dream, Martin Luther King](https://www.youtube.com/watch?v=vP4iY1TtS3s)
+
 ## Articles
 
 [No Place for Pity, No Room for Fear](https://www.thenation.com/article/archive/no-place-self-pity-no-room-fear/), Toni Morrison 
