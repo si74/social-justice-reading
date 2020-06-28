@@ -92,6 +92,12 @@ Black Skin, White Masks. - Frantz Fanon.
 
 [I Have a Dream, Martin Luther King](https://www.youtube.com/watch?v=vP4iY1TtS3s)
 
+## Podcasts
+
+[Clementine Jacoby on Data and Criminal Justice Reform](https://gothamgal.com/2019/11/data-is-illuminating-clementine-jacoby-podcast-121/)
+
+[Abolishing Prisons with Marianne Jacoby](https://open.spotify.com/episode/3HSlkX2ILgycB27oi8xB0s?si=1K_7-m8CTACBK8fQRxKAmA)
+
 ## Articles
 
 [No Place for Pity, No Room for Fear](https://www.thenation.com/article/archive/no-place-self-pity-no-room-fear/), Toni Morrison 
@@ -103,6 +109,10 @@ Black Skin, White Masks. - Frantz Fanon.
 [Baltimore's Most Hated Cop and Me](https://www.huffpost.com/highline/article/daniel-hersl-baltimore-police/), Daniel Hersl
 
 [Agenda Seeding: How 1960s Black Protests Moved Elites, Public Opinion and Voting](https://www.cambridge.org/core/journals/american-political-science-review/article/agenda-seeding-how-1960s-black-protests-moved-elites-public-opinion-and-voting/136610C8C040C3D92F041BB2EFC3034C/core-reader)
+
+[What Abolitionists Do](https://www.jacobinmag.com/2017/08/prison-abolition-reform-mass-incarceration)
+
+[How Do We Change America?](https://www.newyorker.com/news/our-columnists/how-do-we-change-america)
 
 ## Useful resource aggregation
 
